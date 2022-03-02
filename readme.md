@@ -3,8 +3,7 @@
 3. 辞了辞了
 4. 配电脑
 5. 在？借我1w
-![836410B3CF51C09E5AD503DC7FE7C657](https://user-images.githubusercontent.com/38839213/156331935-cf35d160-9fb2-473e-a114-b47815f65184.jpg)
-
+![avatar](https://user-images.githubusercontent.com/38839213/156331935-cf35d160-9fb2-473e-a114-b47815f65184.jpg)
 7. 今天必不可能加班
 8. 兄弟们，我又留了下来
 9. 钱多  双休  不加班  项目可以  不去阿里
